@@ -1,4 +1,4 @@
-#  
+#  Todoist for macOS custom Utility - AI assistant and task automation is the best Todoist for macOS utility, featuring AI assistant and task automation. Safe, efficient, and
 
 
 
